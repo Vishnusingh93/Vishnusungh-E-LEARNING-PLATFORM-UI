@@ -13,7 +13,7 @@
  *MENTOR* : NEELA SANTOSH
 
 *DESCRIPTION* :
+![Image](https://github.com/user-attachments/assets/2e819022-8b83-40e6-95e9-f3d34c203b3a)
+![Image](https://github.com/user-attachments/assets/38970c9f-fea2-4d73-aa45-00fbf0b0a300)
 
-![Image](https://github.com/user-attachments/assets/f80ac05f-2a1a-4706-b66d-794a048beaa7)
-![Image](https://github.com/user-attachments/assets/45bc21bb-5ae3-4f9b-b767-6a81689de8bf)
-![Image](https://github.com/user-attachments/assets/d32a8004-7b66-4e97-9229-843972e8c39a)
+![Image](https://github.com/user-attachments/assets/eb0cd1ac-b8fb-49c1-b2d8-097dc1903e69)
